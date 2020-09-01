@@ -10,10 +10,13 @@ then i saw my ft's</br>
 Ms Ng and mdm Sim</br>
 the first impressions of them</br>
 ms Ng was friendly, and very very kind</br>
-Mdm Sim was strict very very strict</br>
+Mdm Sim was kind very very </br>
 when i was asking her for something</br>
 i swear i heard</br>
 ****Oh! Your approaching me?***</br>
 although this was later proved false for she is very very, um... </br>
-not not kind</br>
+patient and kind. But always on her phone</br>
+They may be very contrasting in size...</br>
+But I was sure...</br>
+They were both great teachers</br>
 The end</br>
