@@ -16,7 +16,7 @@ i swear i heard</br>
 ****Oh! Your approaching me?***</br>
 although this was later proved false for she is very very, um... </br>
 patient and kind. But always on her phone</br>
-They may be very contrasting in size...</br>
+They may be very contrasting in style...</br>
 But I was sure...</br>
 They were both great teachers</br>
 The end</br>
