@@ -10,7 +10,7 @@ then i saw my ft's</br>
 Ms Ng and mdm Sim</br>
 the first impressions of them</br>
 ms Ng was friendly, and very very kind</br>
-Mdm Sim was kind very very </br>
+Mdm Sim was a bit more strict </br>
 when i was asking her for something</br>
 i swear i heard</br>
 ****Oh! Your approaching me?***</br>
